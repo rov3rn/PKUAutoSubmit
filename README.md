@@ -1,5 +1,5 @@
 # PKUAutoSubmit (modified)
-奥利给！!!!!!
+奥利gg
 
 **UPDATE 2020/10/18**
 
